@@ -8,7 +8,7 @@ to me if u have any questions im trying to improve in that
 -DNI fandoms yandare sim and hetalia
 -dont be afraid to come up to me and have a chat or friend me im always open to making new friends!
 -I always treat everyone with respect and im always kind to others im always open for venting
-and C+H is alr if u are friends with me and your always free to INT with me
+and C+H is alr and your always free to INT with me
 -If im acting a bit rude pls make sure to tell me i may say rude things sometimes or may take
 jokes a lil to far if i am and i make you uncomfortable pls make sure to tell me to reflect
 and so this cant be a further problem i want everyone to have a peaceful and happy time
